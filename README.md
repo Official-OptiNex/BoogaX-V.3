@@ -1,2 +1,2 @@
 # BoogaX-V.3
-The original BoogaX V.3 from like 6 years ago!!
+<h3 align="center" style="color:red;">Connect with me:</h3>
